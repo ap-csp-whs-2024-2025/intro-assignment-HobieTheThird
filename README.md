@@ -11,5 +11,6 @@
 ## About Me
 Answer the questions below
 * Something interesting about me is "and im a creep"
-* Ask Mr. Vu anything: 
-* List your sports and extracurriculars you participate in
+* Ask Mr. Vu anything: di an gio o ben con ko?
+* List your sports and extracurriculars you participate in 
+literally poker
